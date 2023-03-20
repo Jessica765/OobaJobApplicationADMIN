@@ -1,5 +1,5 @@
 
-Seeking an Internal Homeloans Consultant for the Property/Home Loan Finance Industry on the Lower South Coast. The individual in this role would need to have good knowledge in the industry, be computer literate, accuracy and attention to detail is a must and be client service orientated
+Seeking an Homeloans Finance Expert for the Property/Home Loan Finance Industry on the Lower South Coast. The individual in this role would need to have good knowledge in the industry, be computer literate, accuracy and attention to detail is a must and be client service orientated
 
 ### Duties and Responsibilities
 
